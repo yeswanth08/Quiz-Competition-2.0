@@ -1,1 +1,0 @@
-# Quiz-Competition-2.0
